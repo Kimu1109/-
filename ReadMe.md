@@ -1,6 +1,8 @@
-1月12日 残り38日!
+**1月12日 残り38日!**
 
 # 百折不撓(ひゃくせつふとう)
+<img src="https://2.bp.blogspot.com/-wSQ2eVTRAeM/VkLHVmYCEQI/AAAAAAAA0VQ/vgfU8DURzb0/s800/studynight_boy.png" width="30%">
+
 ## 意味  
 何度失敗しても、くじけずに挑戦し続けること。
 
